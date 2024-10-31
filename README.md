@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Yash More
+- 🌱 I’m currently studying @IIIT HYderabad.
