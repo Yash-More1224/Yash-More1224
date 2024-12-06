@@ -1,2 +1,2 @@
 - 👋 Hi, I’m Yash More
-- 🌱 I’m currently studying @IIIT HYderabad.
+- 🌱 I’m currently studying at [IIIT HYderabad]([url](https://www.iiit.ac.in/)).
